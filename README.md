@@ -1,2 +1,2 @@
 # Latig-site-
-Maison du Renouveau 
+Boutique du Renouveau 
